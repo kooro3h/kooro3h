@@ -1,5 +1,5 @@
-‌         ‌-hi im koorosh👋🏻❤
-‌       ‌‌‌
-‌         ‌-Programmer👨🏻‍💻
-‌        ‌ ‌ ‌‌
-‌         ‌-my instagram:kooro3h💯
+-hi im koorosh👋🏻❤
+‌‌
+‌-Programmer👨🏻‍💻
+‌‌
+‌-my instagram:kooro3h💯
